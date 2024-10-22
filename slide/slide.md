@@ -69,4 +69,9 @@ A Fiesta de Los Muertos é uma rica tradição cultural que une comunidades e fa
 [Video sobre a celebração](https://youtu.be/J5UXnp4cmxU?si=Q8x72e5MAqsccGfj)
 
 ---
-![Acabou](fim.jpg)
+![Acabou](fim.jpg) 
+
+---
+# Colégio Luis Viana - Turma A
+# Curso: Administração - Espanhol
+# Marcos Vinícius e Cauê Arthur
